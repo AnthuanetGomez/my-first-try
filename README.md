@@ -1,1 +1,0 @@
-Group Carlos and George
